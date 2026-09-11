@@ -8,9 +8,11 @@ It would be for you"
 <br>
 <img width="40%" src="https://i.pinimg.com/vwebp/1200x/2f/04/b7/2f04b7448c3d4f6cc7cadf03f142bfb3.webp">
 <br>
+・22 ✧ he/him ✧ eng・
 <br>
-╔══ ≪ °❈° ≫ ══╗
+ · · ────────── ·𖥸· ────────── · ·
  <br>
+
  <br>
 <a href="https://rentry.co/DegreesOfLewdityPlus">【 DoL 】</a>
 <br>
